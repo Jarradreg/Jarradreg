@@ -6,9 +6,9 @@ Developer
 
 ✏️ I enjoy doing design work; coding isn't really my thing. I love creating visually appealing things like logos, banners, and profile graphics.
 
-* 🌍  I'm based in the United Kingdom
+* 🌍  I'm based in United Kingdom
 * ✉️  You can contact me at [Jarradreg@gmail.com](mailto:Jarradreg@gmail.com)
-* 🧠  I'm currently learning to make my work better
+* 🧠  I'm currently learning Making my work better
 * 💬  Ask me about I'm secretly Spiderman ... but don't tell anyone
 
 <p align="left">
